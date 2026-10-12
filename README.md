@@ -78,4 +78,5 @@
 ‎---
 ‎
 ‎TrustCheck AI — One vision. Multiple platforms. Smarter relationship communication. 💚
-‎
+‎Contact.me@ Telegram: @ghostpayrol
+Contact.me@: t.me/ghostpayrol
